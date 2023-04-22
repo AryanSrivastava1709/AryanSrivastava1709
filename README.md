@@ -9,7 +9,7 @@
 
 - 🌱 I’m currently learning **JavaScript,ReactJS**
 
-- 📫 You can reach me on **Aryansrivas123@gmail.com**
+- 📫 You can reach me on **Aryansrivas123@gmail.com or 7844868680**
 
 - 🙂 Totally into **Marvel Cinematic Universe**
 
